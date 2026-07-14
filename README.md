@@ -10,7 +10,8 @@
  
  ${\color{#D380DE}going}$ ${\color{#D380DE}to}$ ${\color{#D380DE}give}$ ${\color{#D380DE}me}$  ${\color{#D380DE}the}$ ${\color{#D380DE}pearls}$ ${\color{#D380DE}regardless?}$ ⊱  
 
-  ⊰ ${\color{#872A28}YES,}$ ${\color{#872A28}I}$ ${\color{#872A28}was.}$ ${\color{#872A28}I}$ ${\color{#872A28}know}$ ${\color{#872A28}we're}$ ${\color{#872A28}rivals}$ ${\color{#872A28} and}$ ${\color{#872A28}all,}$ ${\color{#872A28}but...}$  ⊱
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⊰ ${\color{#872A28}YES,}$ ${\color{#872A28}I}$ ${\color{#872A28}was.}$
+  ${\color{#872A28}I}$ ${\color{#872A28}know}$ ${\color{#872A28}we're}$ ${\color{#872A28}rivals}$ ${\color{#872A28} and}$ ${\color{#872A28}all,}$ ${\color{#872A28}but...}$  ⊱
 
 <img alighn="right" src="https://64.media.tumblr.com/81b29785bbc67647a2d93af1a96c498f/57cd3f6a4b5c3deb-e4/s2048x3072/e1a22e5d46881c283f769f723fe57648f121b0dd.pnj" align="centre" width="300">
 
