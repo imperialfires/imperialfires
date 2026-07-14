@@ -5,3 +5,8 @@
 <img alighn="right" src="https://64.media.tumblr.com/9dc8114870d05740bc10980e647ff131/c42be3ac47413ebf-2f/s250x400/5aa8a8f1b81c50ca11e40a42da8e29e55a0cae96.gif" align="centre" width="300">
 <img alighn="right" src="https://64.media.tumblr.com/3f4f27ad8a6e8f4c41aaf87e3054ce6e/2c8c9a8249a0375c-a3/s250x400/256fe785ac6adc6ca5ec64ad679ba906d0139040.gif" align="centre" width="300">
 
+<img src="https://i.postimg.cc/gkX7C8vS/7kef4i.gif" width="30" hspace="-70"/>  ⊰ ${\color{#9B1C31}Lets}$ ${\color{#9B1C31} see}$ ${\color{#9B1C31}if}$ ${\color{#9B1C31}you}$ ${\color{#9B1C31}really}$ ${\color{#9B1C31}are}$ ${\color{#9B1C31}the}$ ${\color{#e0d8d9}strongest. }$⊱ <img src="https://i.postimg.cc/hPkYcvsS/u1huo2.gif" width="30" hspace="10" />
+
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  [新book](https://antag.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://i.postimg.cc/x1WVT90y/1119041752762941470.webp" width="24">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[COMMS](https://veskar.straw.page)
+
+
