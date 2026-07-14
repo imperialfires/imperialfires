@@ -4,7 +4,12 @@
 
 <img alighn="right" src="https://64.media.tumblr.com/9dc8114870d05740bc10980e647ff131/c42be3ac47413ebf-2f/s250x400/5aa8a8f1b81c50ca11e40a42da8e29e55a0cae96.gif" align="centre" width="300">
 
-<img src="https://i.postimg.cc/gkX7C8vS/7kef4i.gif" width="30" hspace="-70"/>  ⊰ ${\color{#9B1C31}Lets}$ ${\color{#9B1C31} see}$ ${\color{#9B1C31}if}$ ${\color{#9B1C31}you}$ ${\color{#9B1C31}really}$ ${\color{#9B1C31}are}$ ${\color{#9B1C31}the}$ ${\color{#e0d8d9}strongest. }$⊱ <img src="https://i.postimg.cc/hPkYcvsS/u1huo2.gif" width="30" hspace="10" />
+
+<img src="https://64.media.tumblr.com/31329862bf07ae39a13557f6c354dad5/ffa1be8d21436169-f9/s75x75_c1/aeb35126a70c85d637ae094dcc820514851879cc.gif" width="30" hspace="-70"/>  ⊰ ${\color{#D380DE}...You}$ ${\color{#D380DE}were}$ ${\color{#D380DE}going}$ ${\color{#D380DE}to}$ ${\color{#D380DE}give}$ ${\color{#D380DE}me}$  ${\color{#D380DE}the}$ ${\color{#D380DE}pearls}$ ${\color{#D380DE}regardless?}$ ⊱  <img src="https://64.media.tumblr.com/95e604b03371c1c0d382a8c54dee631c/ffa1be8d21436169-e8/s75x75_c1/0b56aaa1cc014ee8cb7a7b6a0503eb32eb4cd737.gifv" width="30" hspace="10" />
+
+<img src="https://64.media.tumblr.com/31329862bf07ae39a13557f6c354dad5/ffa1be8d21436169-f9/s75x75_c1/aeb35126a70c85d637ae094dcc820514851879cc.gif" width="30" hspace="-70"/>  ⊰ ${\color{#872A28}YES,}$ ${\color{#872A28}I}$ ${\color{#872A28}was.}$ ${\color{#872A28}I}$ ${\color{#872A28}know}$ ${\color{#872A28}we're}$ ${\color{#872A28}rivals}$ ${\color{#872A28} and}$ ${\color{#872A28}all,}$ ${\color{#872A28}but...}$  ⊱ <img src="https://64.media.tumblr.com/95e604b03371c1c0d382a8c54dee631c/ffa1be8d21436169-e8/s75x75_c1/0b56aaa1cc014ee8cb7a7b6a0503eb32eb4cd737.gifv" width="30" hspace="10" />
+
+
 <img alighn="right" src="https://64.media.tumblr.com/3f4f27ad8a6e8f4c41aaf87e3054ce6e/2c8c9a8249a0375c-a3/s250x400/256fe785ac6adc6ca5ec64ad679ba906d0139040.gif" align="centre" width="300">
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [新book](https://antag.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://i.postimg.cc/x1WVT90y/1119041752762941470.webp" width="24">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[COMMS](https://veskar.straw.page)
