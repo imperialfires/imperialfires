@@ -4,13 +4,11 @@
 
 <img alighn="right" src="https://64.media.tumblr.com/9b57a24d5bacc1dee28e7dcbfcabb963/57cd3f6a4b5c3deb-c9/s2048x3072/864e9696a783bc1c9a9eb8b544bad663de0e93e0.pnj" align="centre" width="300">
 
-
-
   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎<img alighn="right" src="https://64.media.tumblr.com/69fe60da2a2fec95b5173a375f05adf7/2385b07f03fe54d9-e7/s75x75_c1/9545824e6c40266772d2381dd09621d72adbcb2e.gifv" width="30"> ‎ ‎ ‎ ‎ ‎ ‎ ‎   ${\color{#D380DE}—...You}$ ${\color{#D380DE}were}$ 
  
  ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#D380DE}going}$ ${\color{#D380DE}to}$ ${\color{#D380DE}give}$ ${\color{#D380DE}me}$  ${\color{#D380DE}the}$ ${\color{#D380DE}pearls}$ ${\color{#D380DE}regardless?}$  
 
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ${\color{#872A28}YES,}$ ${\color{#872A28}I}$ ${\color{#872A28}was.—}$
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ${\color{#872A28}YES,}$ ${\color{#872A28}I}$ ${\color{#872A28}was.—}$    ‎<img alighn="right" src="https://cdn3.emoji.gg/emojis/386743-fire-pixel.gif" width="30"> ‎
    
   ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#872A28}I}$ ${\color{#872A28}know}$ ${\color{#872A28}we're}$ ${\color{#872A28}rivals}$ ${\color{#872A28} and}$ ${\color{#872A28}all,}$ ${\color{#872A28}but...}$  
 
