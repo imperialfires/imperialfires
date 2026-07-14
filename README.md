@@ -9,7 +9,7 @@
 
   ⊰ ${\color{#872A28}YES,}$ ${\color{#872A28}I}$ ${\color{#872A28}was.}$ ${\color{#872A28}I}$ ${\color{#872A28}know}$ ${\color{#872A28}we're}$ ${\color{#872A28}rivals}$ ${\color{#872A28} and}$ ${\color{#872A28}all,}$ ${\color{#872A28}but...}$  ⊱
 
-<img alighn="right" src="https://64.media.tumblr.com/3f4f27ad8a6e8f4c41aaf87e3054ce6e/2c8c9a8249a0375c-a3/s250x400/256fe785ac6adc6ca5ec64ad679ba906d0139040.gif" align="centre" width="300">
+<img alighn="right" src="https://64.media.tumblr.com/cececc490999ad5f41fd890096026c82/e7a0aa09ce236328-89/s2048x3072/901f539eee9c00681ecc80b934559ee876b05be3.pnj" align="centre" width="300">
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [新book](https://antag.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://i.postimg.cc/x1WVT90y/1119041752762941470.webp" width="24">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[COMMS](https://veskar.straw.page)
 
