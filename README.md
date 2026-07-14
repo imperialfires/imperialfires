@@ -5,7 +5,10 @@
 <img alighn="right" src="https://64.media.tumblr.com/9b57a24d5bacc1dee28e7dcbfcabb963/57cd3f6a4b5c3deb-c9/s2048x3072/864e9696a783bc1c9a9eb8b544bad663de0e93e0.pnj" align="centre" width="300">
 
 
- ⊰ ${\color{#D380DE}...You}$ ${\color{#D380DE}were}$ ${\color{#D380DE}going}$ ${\color{#D380DE}to}$ ${\color{#D380DE}give}$ ${\color{#D380DE}me}$  ${\color{#D380DE}the}$ ${\color{#D380DE}pearls}$ ${\color{#D380DE}regardless?}$ ⊱  
+
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⊰ ${\color{#D380DE}...You}$ ${\color{#D380DE}were}$ 
+ 
+ ${\color{#D380DE}going}$ ${\color{#D380DE}to}$ ${\color{#D380DE}give}$ ${\color{#D380DE}me}$  ${\color{#D380DE}the}$ ${\color{#D380DE}pearls}$ ${\color{#D380DE}regardless?}$ ⊱  
 
   ⊰ ${\color{#872A28}YES,}$ ${\color{#872A28}I}$ ${\color{#872A28}was.}$ ${\color{#872A28}I}$ ${\color{#872A28}know}$ ${\color{#872A28}we're}$ ${\color{#872A28}rivals}$ ${\color{#872A28} and}$ ${\color{#872A28}all,}$ ${\color{#872A28}but...}$  ⊱
 
