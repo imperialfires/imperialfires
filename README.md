@@ -20,5 +20,5 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [新book](https://imperialfires.atabook.org) ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://decohoard.carrd.co/assets/images/gallery126/d2f61f6a.gif?v=e0827b7e" width="24">‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[COMMS](https://veskar.straw.page)
  
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ${\color{#872A28}18+}$ ${\color{#D380DE}IWEC}$ 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ${\color{#872A28}18+}$    ${\color{#872A28}13-}$ ${\color{#D380DE}IWEC / DNI}$ 
 
