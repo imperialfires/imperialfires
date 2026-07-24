@@ -21,6 +21,6 @@
  
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ${\color{#872A28}18+}$    ${\color{#872A28}13-}$ ${\color{#D380DE}IWEC / DNI}$ 
-
-
-  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ <img alighn="centre" src="https://media.discordapp.net/attachments/1272166339146022964/1530144579293024356/makesweet-j62aen.gif?ex=6a6481b0&is=6a633030&hm=2d70706f519cb579edb1859d2ca77b57adafd0435ed64886d4a7f2a0fc743422&=&width=800&height=600" align="centre">
+<p align="center">
+  <img src="https://media.discordapp.net/attachments/1272166339146022964/1530144579293024356/makesweet-j62aen.gif?ex=6a6481b0&is=6a633030&hm=2d70706f519cb579edb1859d2ca77b57adafd0435ed64886d4a7f2a0fc743422&=&width=800&height=600" alt="Alternate Text" width="500">
+</p>
