@@ -1,8 +1,7 @@
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎<img alighn="centre" src="https://hits.sh/github.com/imperialfires.svg?style=plastic&label=wemmbus&color=b24df7&labelColor=675874&logo=4chan" align="centre" width="100">
+<img alighn="centre" src="https://hits.sh/github.com/macedemon.svg?style=plastic&label=flames&color=f74d50&labelColor=745858&logo=4chan" align="centre" width="80">
 
-<img src="https://hits.sh/github.com/imperialfires.svg?style=plastic&label=(%E2%9C%BF%E2%97%A0%E1%B4%97%E2%97%A0)&color=842725&labelColor=ce7cd7&logo=4chan
-" align="centre" width="100">
-
-<img alighn="right" src="https://media.discordapp.net/attachments/1272166339146022964/1526592966536200332/wemmbu.png?ex=6a5795fd&is=6a56447d&hm=4cd80c43d8221188fe2761f3beadb3af02748ca4c781c9b2a7ede9005b522705&=&format=webp&quality=lossless&width=510&height=700" align="left" width="250"><img alighn="right" src="https://media.discordapp.net/attachments/1272166339146022964/1526592946869112980/flame.png?ex=6a5795f9&is=6a564479&hm=eb75183f649b7af6cbee7096323a7f358d33559fdb26ee86f684400d89020176&=&format=webp&quality=lossless&width=1108&height=1522" align="right" width="250">
+<img alighn="right" src="https://media.discordapp.net/attachments/1272166339146022964/1526592966536200332/wemmbu.png?ex=6a641c3d&is=6a62cabd&hm=604f73f6dfa90dd3f6c3e6782369159fba8446dc5ceebaebfaa7dd8c837e3342&=&format=webp&quality=lossless&width=1108&height=1522" align="left" width="250"><img alighn="right" src="https://media.discordapp.net/attachments/1272166339146022964/1526592946869112980/flame.png?ex=6a5795f9&is=6a564479&hm=eb75183f649b7af6cbee7096323a7f358d33559fdb26ee86f684400d89020176&=&format=webp&quality=lossless&width=1108&height=1522" align="right" width="250">
 
 
 <img alighn="right" src="https://64.media.tumblr.com/30e1b052d0dc54902e314fb8e6854241/6b6cef5fada6f113-35/s2048x3072/cee267b3ec1d9b5585bc95dd4f57cdcc6673140a.gifv" align="centre" width="300">
